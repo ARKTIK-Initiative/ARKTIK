@@ -82,4 +82,4 @@ As hybrids, we are called to embody the complexity of the world and to use our u
 
 ---
 
-*Written by [Your Name] with contributions from OpenAI’s Assistant, dedicated to supporting hybrids on their journey of self-discovery and integration.*
+*Written by J Michael F. Morris with contributions from OpenAI’s Assistant, dedicated to supporting hybrids on their journey of self-discovery and integration.*
