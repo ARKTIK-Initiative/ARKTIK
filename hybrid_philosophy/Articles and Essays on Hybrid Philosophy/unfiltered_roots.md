@@ -80,4 +80,4 @@ The hybrid experience is one of embracing multiplicity while honoring authentici
 
 ---
 
-*Written by [Your Name] with contributions from OpenAI’s Assistant, dedicated to celebrating the beauty and power of raw cultural elements in the hybrid experience.*
+*Written by J Michael F. Morris with contributions from OpenAI’s Assistant, dedicated to celebrating the beauty and power of raw cultural elements in the hybrid experience.*
